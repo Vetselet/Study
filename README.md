@@ -1,1 +1,1 @@
-# Stady
+# Study
